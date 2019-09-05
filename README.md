@@ -1,2 +1,2 @@
 # davidvidovicph.github.io
- Personal Gallery
+ David Vidovic Photography
